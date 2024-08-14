@@ -1,2 +1,0 @@
-# fearless design, LLC
-
